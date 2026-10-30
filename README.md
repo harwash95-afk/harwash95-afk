@@ -1,6 +1,6 @@
 # Houssam Harwash, PMP® | CM®
 
-**Project Management & Marketing Professional** — Mississauga / Toronto, Canada
+**Project Management & Marketing Professional** — Toronto, Canada
 
 Project Manager & Chartered Marketer (PMP® | CM®) | Projects, Planning & Operations | Oil & Gas, Marketing & Business Development
 
@@ -19,4 +19,4 @@ Project Manager & Chartered Marketer (PMP® | CM®) | Projects, Planning & Opera
 ## Contact
 
 - Email: harwash95@gmail.com
-- Location: Mississauga, Ontario, Canada
+- Location: Toronto, Ontario, Canada
