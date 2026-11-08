@@ -6,10 +6,10 @@ Project Manager & Chartered Marketer (PMP® | CM®) | Projects, Planning & Opera
 
 ## Background
 
-- **Saudi Arabia (2013–2018):** Projects and Planning Division Manager at Abrican for Oil and Gas Services, Khobar. Managed projects, tenders, and purchase orders through Saudi Aramco's systems for new and ongoing contracts. Received a Letter of Appreciation from Aramco's South Ghawar Maintenance Services Division.
-- **Syria:** Bachelor's Degree in Economics, Damascus University. Before leaving in 2012, privately coordinated relief for displaced families: housing placement, food and medical aid, funded by private donors.
+- **Saudi Arabia:** Projects and planning in the oil and gas sector, based in Khobar. Managed projects, tenders, and purchase orders through Saudi Aramco's systems for new and ongoing contracts. Received a Letter of Appreciation from Aramco's South Ghawar Maintenance Services Division.
+- **Syria:** Bachelor's Degree in Economics, Damascus University. Before leaving Syria, privately coordinated relief for displaced families: housing placement, food and medical aid, funded by private donors.
 - **Canada:** Advanced Diploma in Business Administration, Sheridan College, High Honour Graduate (3.93 GPA); first place in a strategic business simulation ranked in the Global Top 50. PMP® and Chartered Marketer (CM®) designations. Ontario real estate licence.
-- **Founder:** Co-founder of Harwash Inc, Toronto (2019), leading operations, marketing, and business development. The business holds a 4.9 star rating across 900+ Google reviews.
+- **Founder:** Co-founder of Harwash Inc, Toronto, leading operations, marketing, and business development. The business holds a 4.9 star rating across 900+ Google reviews.
 
 ## Currently
 
