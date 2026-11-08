@@ -1,4 +1,4 @@
-# Houssam Harwash, PMP® | CM®
+# Houssam Harwash, Economist | PMP® | CM®
 
 **Project Management & Marketing Professional** — Toronto, Canada
 
